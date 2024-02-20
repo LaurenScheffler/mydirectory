@@ -1,2 +1,3 @@
-# College is the reward for surviving high school.
-~ Judd Apatow
+# All our dreams can come true, if we have the courage to pursue them.
+
+~ Walt Disney
